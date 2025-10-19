@@ -1,2 +1,3 @@
 - https://www.thespruce.com/best-growing-conditions-for-bamboo-2132865
 - https://www.bamboogarden.com/bamboo-care
+- https://www.bambooinfo.in/cultivation/harvesting-and-yield-of-bamboo.asp
