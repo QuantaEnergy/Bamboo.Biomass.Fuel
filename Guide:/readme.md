@@ -1,1 +1,2 @@
-https://www.thespruce.com/best-growing-conditions-for-bamboo-2132865
+- https://www.thespruce.com/best-growing-conditions-for-bamboo-2132865
+- https://www.bamboogarden.com/bamboo-care
